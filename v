@@ -3,6 +3,8 @@ AzDRcg88XX6LuFn6 //Mk
 mf4rB1PqIxxIiJ9k //Daveys
 DyTWx/TX+vT77suL //Reflex
 IuW7RhAk5YdYFj74 //Banana
+YyDLFC5YabRB56HK //Chezzy 1
+thc+2/O3XGM00PyZ //Chezzy 2
 7H+ggNRnqIjsP1Cb //Brudda
 k3LbNZNyWzUD4lui //Tuttu
 gsE6B0XcAXy/PU5A //Hulk
