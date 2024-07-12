@@ -10,5 +10,5 @@ yqsPng/qddFeIYoq //SRT 2
 zJddSTKegnXTz6Bc //SRT 1
 ROzfEUGFzi5pW+v3 //Arce
 jt5yyR7mEpE+jiK+ //ZTh14g0
-c8Een/Rx/nV3SQcp //Rinto-R35
+nreCpENGSXKYjb5e //Rinto-R35
 Yjf9o23KgUcN/0IK //Spaidis420
