@@ -7,7 +7,7 @@ IuW7RhAk5YdYFj74 //Banana
 YyDLFC5YabRB56HK //Chezzy 1
 thc+2/O3XGM00PyZ //Chezzy 2
 7H+ggNRnqIjsP1Cb //Brudda
-k3LbNZNyWzUD4lui //Tuttu
+G+Dl/nZAWaonPwmC //Tuttu
 gsE6B0XcAXy/PU5A //Hulk
 WoqGpUKqrkVqenZq //Superlame
 yqsPng/qddFeIYoq //SRT 2
