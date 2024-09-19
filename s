@@ -21,7 +21,6 @@ yFMqXNlZKkTBesxB //Krisztian
 RFkdaCkk//e0g0BY //Blarbe
 9dfVwNX/9ej1l5WD //Rubbel_31 racon
 BSfAEPBP7M+VCClz //AkumaZ npc
-s3gfGDZ5BSjQKt0T //sensizim02 NAUGHTY
 WyCfdXHnehsNGSeb //dmrzn
 OzwqKM3L+eLYzvP5 //Raion4545 meow
 
