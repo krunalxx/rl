@@ -21,7 +21,7 @@ PagtoDBZJqk+ijWh //Jayson
 ROzfEUGFzi5pW+v3 //Arce
 sfsPqI8q31mPN6ZK //ZTh14g0
 Vo/+I2qmmc4Ncrb+ //Rinto-R35
-49Z+pFmZ3DocR2uh //Negrito
+49Z+pFmZ0socR2uh //Negrito
 2lN9mahggFn7p3aO //Floppy
 jSjMssi+UQ2rZTtQ //TokumeiR
 yFMqXNlZKkTBesxB //Krisztian
