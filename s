@@ -1,6 +1,5 @@
 odPGB8FzbqcRk7bP //MizzMaster
-UGoEDTQK+yEgSd8q //Krunal 1
-iGDY8KARHuaeRibH //Krunal 2
+JCQkE2RMRLuE5OTQ //Krunal
 AzDRcg88XX6LuFn6 //Mk
 teBlTcW4skG67n1G //Mike
 7H+ggNRnqIjsP1Cb //Brudda
